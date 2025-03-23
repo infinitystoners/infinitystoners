@@ -1,4 +1,4 @@
-![+](https://komarev.com/ghpvc/?username=infinitystoners-username&label=　　🚎　&color=lightgrey　)
+![+](https://komarev.com/ghpvc/?username=infinitystoners-username&color=lightgrey&label=　　🚎　　)
 ⠀⠀⠀◡◡⠀⠀⠀dirtball⠀⠀in⠀⠀the⠀⠀coupe⠀⠀𐂯
 ![image](https://files.catbox.moe/16q5tr.png) 
 ⠀⠀⠀⠀⠀⠀[straw](https://drugyaoi.straw.page)⠀⠀ᛝ⠀⠀he⠀⠀ᛝ⠀⠀msg⠀⠀(✿ᴗ͈ᴗ͈) 
