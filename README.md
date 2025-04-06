@@ -7,5 +7,5 @@
 ⠀⠀⠀⠀⠀⠀[straw](https://drugyaoi.straw.page)⠀⠀ᛝ⠀⠀he⠀⠀ᛝ⠀[msg](https://neospring.org/@thagyu)⠀⠀(✿ᴗ͈ᴗ͈) 
 ⠀⠀⠀⠀⠀⠀𓎢𓎟𓎡⠀⠀smokin'⠀⠀cat⠀⠀piss. . 
 
-![image](https://files.catbox.moe/lob2g0.gif)
+
 ![image](https://files.catbox.moe/fostpy.jpeg)
