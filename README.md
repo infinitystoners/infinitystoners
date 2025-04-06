@@ -6,6 +6,4 @@
 ![image](https://files.catbox.moe/4rzfh3.gif)
 ⠀⠀[straw](https://drugyaoi.straw.page)⠀⠀ᛝ⠀⠀he⠀⠀ᛝ⠀[msg](https://neospring.org/@thagyu)⠀⠀(✿ᴗ͈ᴗ͈) 
 ⠀⠀𓎢𓎟𓎡⠀⠀smokin'⠀⠀cat⠀⠀piss. . 
-
-
-![image](https://files.catbox.moe/fostpy.jpeg)
+![image](https://files.catbox.moe/u9ydry.png)
